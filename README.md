@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Saksham Sahu
-**A passionate Full Stack Web Devloper || Graphic Designer || Webiela
+A passionate Full Stack Web Devloper || Graphic Designer || Webiela
 
 Email Me 👉 ✉️ **webiela.software@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
